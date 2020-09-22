@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Das Haus
+title: La Casetta
 permalink: /
 order: 1
 ---
