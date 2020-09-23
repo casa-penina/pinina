@@ -12,7 +12,8 @@ Unser Häuschen befindet sich im Dorf Loco, im Onsernonetal, nicht unweit der Te
 
 
 # Mit dem Auto
-Von Locarno aus sind es ca. 20 Min. Autofahrt nach Loco. [Link zur Google Maps Route](https://goo.gl/maps/BJMVhhDwGufkYRn17)
+[Von Locarno aus sind es ca. 20 Min. Autofahrt nach Loco.](https://goo.gl/maps/BJMVhhDwGufkYRn17)
+
 Wenn man in Loco ankommt, gibt es auf der linken Seite eine Reihe von Parkplätzen. Danach kommt links ein (geschlossenes) Gasthaus und noch eine Reihe Parkplätze. Am Ende dieser Parkplätze führt links eine Treppe herunter. Am Ende dieser Treppe liegt das Haus. 
 
 # Mit dem Zug / Bus
