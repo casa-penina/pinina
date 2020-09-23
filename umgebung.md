@@ -18,16 +18,19 @@ Hier ein paar Info-Links zum Onsernonetal:
 Einkaufsmöglichkeiten gibt es im Dorf und im Supermarkt Coop in Verscio, auf dem Wege nach Locarno ca. 15 Min. Autofahrt entfernt. Der Bäcker in Verscio auf der Piazza ist sehr empfehlenswert.
 
 ### Museo Onsernone
-In Loco gibt es ein kleines Museum, in welchem man alte Handwerkskunst und traditionelle Möbel aus dem Tal bewundern kann.
 [Paese 5, 6661 Loco, Schweiz](https://g.page/museonsernonese?share)
 
+In Loco gibt es ein kleines Museum, in welchem man alte Handwerkskunst und traditionelle Möbel aus dem Tal bewundern kann.
+
 ### Caffe della posta
-Ein nettes kleines Cafe, i nwelchem man auch Essen kann, ist leicht zu fuß erreichbar.
 [Piazza 1, 6661 Loco, Schweiz](https://goo.gl/maps/M7qrjefHw92tPmh57)
 
+Ein nettes kleines Cafe, i nwelchem man auch Essen kann, ist leicht zu fuß erreichbar.
+
 ### Minimarkt
-Für kleinere Einkäufe gibt es einen kleinen "Supermarkt":
 [Paese 56, 6661 Loco, Schweiz](https://goo.gl/maps/22NZbF2cy71tDYjL8)
+
+Für kleinere Einkäufe gibt es einen kleinen "Supermarkt":
 
 Für größere Einkäufe empfiehlt es sich jedoch zum Supermarkt in Verscio zu fahren. Dieser ist auf dem Wege nach Locarno ca. 15 Min. Autofahrt entfernt.
 Der Bäcker in Verscio auf der Piazza ist auch sehr empfehlenswert!
