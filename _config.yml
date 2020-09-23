@@ -59,4 +59,4 @@ weburl: "http://pinina.de"
 header_pages: 
   - index.md
   - loco.md
-  - kontakt.md
+  - buchung.md
